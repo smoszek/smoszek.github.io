@@ -10,3 +10,7 @@ Die Fliege ist einer der wohl am häufigsten vorkommenden Charaktere im Film. Ka
 * Ist aber in Wirklichkeit meistens das Opfer.
 * Wenn ihr auch im Grunde nur die Nebenrolle zugewiesen wird, so liefert sie doch in vielen Fällen die Steilvorlage für die Hauptrolle.
 * Sie ist in der Regel unterbezahlt. Oftmals wird ihr nur die Verpflegung am Set zugebilligt.
+
+Die Fliege hat oft keine Sprecherrolle und wenn, dann ist der text in der Regel immer gleich. Zur Verdeutlichung hier ein Auszug aus »Spiel mir das Lied vom Tod«:
+> Bssssssss Bss Bsssssssssss . . . Bssss [leiser werdend] Bssssssssss
+

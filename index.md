@@ -9,4 +9,4 @@ Die Fliege ist einer der wohl am häufigsten vorkommenden Charaktere im Film. Ka
 * Sie verkörpert oftmals den Bösewicht.
 * Ist aber in Wirklichkeit meistens das Opfer.
 * Wenn ihr auch im Grunde nur die Nebenrolle zugewiesen wird, so liefert sie doch in vielen Fällen die Steilvorlage für die Hauptrolle.
-
+* Sie ist in der Regel unterbezahlt. Oftmals wird ihr nur die Verpflegung am Set zugebilligt.
